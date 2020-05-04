@@ -2,7 +2,7 @@
 
 Hi. It's lucky to meet you here, when I doubt lots of people would actually click on others' profiles and have a sneak peek.
 
-I'm ~~Cortana~~ Nux, a year 2 CS-major-COMM-minor student from Morningside College. So far I still have a final paper to finish up - so I won't write a lot here. However, if you're interested (probably not) in knowing more about me or making another friend amid mankind, feel free to send over a message via Telegram **_@makerx_**, or find me on Facebook.
+I'm ~~Cortana~~ Nux, a year 2 CS-major-COMM-minor student from Morningside College. So far I still have a final paper to finish up - so I won't write a lot here. However, if you're interested in knowing more about me or making another friend amid mankind, feel free to send over a message via Telegram **_@makerx_**, or find me on Facebook.
 
 Below is some personal info that I can momentarily think of. We're on a life-long journey of self-discovery, anyways.
 
